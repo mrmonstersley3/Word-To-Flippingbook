@@ -218,4 +218,4 @@ Word to FlippingBook is offered as a complete free version, providing all featur
 Start creating your stunning digital publications today! Download Word to FlippingBook free and transform your documents into engaging experiences.
 
 ---
-**Last updated:** 2026-09-26 21:50:35 UTC
+**Last updated:** 2026-09-27 00:15:09 UTC
